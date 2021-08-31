@@ -2,6 +2,10 @@
 https://tellme.pw/btsow  
 http://www.btdad.life/  
 
+# BT之家
+btbtt20.com
+新加域名：btbtt10-20.com 共10个，http和https都可以，有没有WWW也可以
+
 
 https://u7c7.com/  fq  
 https://cn.torrentkitty.tv/search/  fq  
